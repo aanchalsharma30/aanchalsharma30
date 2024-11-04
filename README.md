@@ -2,7 +2,6 @@
 - 👀 I’m interested in gaining programming knowledge.
 - 🌱 I’ve currently started the Harvard's CS50 course.
 - 💞️ I hope I find people of my intrest to grow together.
-- 📫 How to reach me - @awanzzn
 - 😄 Pronouns: She/her
 - ⚡ Fun fact: I am a Dancer , Wooh!
 
